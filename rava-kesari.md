@@ -7,7 +7,7 @@
 - 4 tsp Ghee
 
 ### Process:
-- Pour 3 cups ghee into a pan.
+- Pour 3 tsps ghee into a pan.
 - Fry cashews in the ghee until they turn golden.
 - Now remove those cashews and fry 1 cup semolina in the same ghee.
 - Once fried remove those as well.
