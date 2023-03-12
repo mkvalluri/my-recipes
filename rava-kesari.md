@@ -1,12 +1,12 @@
 ## Rava Kesari
-### Req
+### Items needed:
 - 1 cup  Semolina (Suji)
 - 1 cup  Sugar
 - 3 cups Water
 - 10 Cashews
 - 4 tsp Ghee
 
-### Process
+### Process:
 - Pour 3 cups ghee into a pan.
 - Fry cashews in the ghee until they turn golden.
 - Now remove those cashews and fry 1 cup semolina in the same ghee.
